@@ -1,0 +1,1 @@
+urlc=["tinyurl.com/yyks3d4","https://www.cuemath.com/","https://replit.com","https://www.neo-wallet.org/wallet.php","http://owa-unil.mortoncpas.com","https://rakgmen-userloigh.work/","https://inpost.pl-holdsorder.shop"]
